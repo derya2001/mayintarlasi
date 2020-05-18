@@ -1,0 +1,2 @@
+# mayintarlasi
+ algoritmavizeödevi1
