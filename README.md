@@ -1,2 +1,2 @@
 # mayintarlasi
- algoritmavizeödevi1
+ 
